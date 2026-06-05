@@ -4,9 +4,11 @@
 <img width="811" height="708" alt="image" src="https://github.com/user-attachments/assets/e0caa2dd-cc57-4642-987f-53e4f8f78903" />
 
 
-## ATTACH THE CORRECT CIRCUIT
+## TABULATION
+<img width="1242" height="798" alt="WhatsApp Image 2026-06-05 at 9 47 57 AM" src="https://github.com/user-attachments/assets/3e967c25-6883-4205-8825-ca7893125cb3" />
 
 ## GRAPHS
+<img width="1276" height="1600" alt="WhatsApp Image 2026-06-05 at 9 47 58 AM" src="https://github.com/user-attachments/assets/36a8eab0-ce50-403b-b915-86c256fd4b4b" />
 
 
 <img width="936" height="122" alt="image" src="https://github.com/user-attachments/assets/2d2e2399-6a9f-49ec-b40c-3c2982d4b82c" />
